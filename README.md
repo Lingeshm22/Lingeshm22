@@ -1,8 +1,8 @@
 - 👋 Hi, I am M.LINGESH
-_❤️❤️ Current student at PIT ,Chennai.
+_ 👨‍🎓👨‍🎓Current student at PIT ,Chennai.
 - 👀 I’m interested in computer hardware
 - 🌱 I’m crawling in ai and ml course 
-_❤️❤️ Also a stock trader.
+_💹💹 Also a invester in crypto and stocks.
 - 💞️ I’m looking to forward in AWS and vr 
 - 📫 How to reach me 
 https://www.linkedin.com/in/lingesh-m-51928b177
