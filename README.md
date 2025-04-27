@@ -2,9 +2,9 @@
 - 👨‍🎓👨‍🎓 Graduate from Panimalar in B.tech in Information technology.
 - 👨‍🎓👨‍🎓Current student at SRM ,Chennai.
 - 👀 I’m interested in computer hardware
-- 🌱 I’m crawling in ai and ml course 
+- 🌱 I’m crawling in BLOCKCHAIN course 
 _💹💹 Also a invester in crypto and stocks.
-- 💞️ I’m looking to forward in AWS and vr 
+- 💞️ I’m looking to forward in AWS , AI and AR
 - 📫 How to reach me 
 https://www.linkedin.com/in/lingesh-m-51928b177
 <!---
