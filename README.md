@@ -1,7 +1,6 @@
 - 👋 Hi, I am M.LINGESH
-- 👨‍🎓👨‍🎓 Graduate from Panimalar in B.tech in Information technology
-
-_ 👨‍🎓👨‍🎓Current student at SRM ,Chennai.
+- 👨‍🎓👨‍🎓 Graduate from Panimalar in B.tech in Information technology.
+- 👨‍🎓👨‍🎓Current student at SRM ,Chennai.
 - 👀 I’m interested in computer hardware
 - 🌱 I’m crawling in ai and ml course 
 _💹💹 Also a invester in crypto and stocks.
